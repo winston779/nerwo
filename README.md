@@ -1,6 +1,6 @@
 # Nerwo奶瓶机场官网地址
 
-最新地址：[eleven.observer](https://share.eleven.observer/auth/register.html?code=X36q)
+最新地址：[eleven.observer](https://invite.eleven.observer/auth/register.html?code=X36q)
 
 ## Nerwo奶瓶介绍
 
